@@ -1,4 +1,4 @@
-Howdy there! I'm Ickthy and I am a pretty chill person (most of the time at least XD) who loves:
+Howdy there! I'm Ickthy and I am a pretty nice person (most of the time at least XD) who loves:
 
 - 🎮 Gaming 
 - ⚙ Screwing around with Technology 
