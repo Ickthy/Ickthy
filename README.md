@@ -6,7 +6,7 @@ Howdy there! I'm Ickthy and I am a pretty nice person in real life (most of the 
 
 Some other information about me:
 
-- I'm a Junior in High School 
+- I'm a Senior in High School 
 - I live in California 
 - I go by the pronouns He/Him :D
 
